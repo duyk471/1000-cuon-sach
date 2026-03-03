@@ -1,0 +1,3 @@
+# Đọc Rừng Na Uy bản Nhật
+
+Đúng gòi, dù mới đọc bản Hạ thôi nhưng mà tôi đã đọc Rừng Na Uy bằng Tiếng Nhật nhé, khoe hơi nhiều =)). Nhưng tôi cảm thấy Watanabe trong bản Tiếng Nhật có vẻ lịch thiệp và biết giữ ý hơn thì phải. Luôn luôn xưng Boku dù kể cả với Naoko hay là Midori (Chắc do mình có ấn tượng là thân thì có lẽ sẽ xưng là Ore =)). Ấn tượng nhất có lẽ là chị Reiko và Midori vì hai người này đóng góp không nhỏ trong quá trình trưởng thành về mặt tâm lý của Watanabe, còn Naoko thì bị mắc kẹt ở quá khứ với căn bệnh tâm lý nên cảm giác như cô đang kéo Watanabe xuống vậy... Nagasaki (Không biết phiên âm tên đúng chưa nhưng là thằng bạn chí cốt của Watanabe)

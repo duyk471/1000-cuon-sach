@@ -1,3 +1,5 @@
+# Danh sách từ vựng trong Truyện Kiều
+
 2. Người có tài thì thường gặp mệnh bạc, hình như Tài, mệnh ghét nhau, xung khắc với nhau, hễ được hơn cái này thì phải kém cái kia.
 3. Bể dâu: Trong văn chương cổ của chúng ta thường dùng thành ngữ "bãi bể nương dâu", hoặc nói tắt là "bể dâu" để chỉ những sự biến đổi thăng trầm của cuộc đời.
 4. Bỉ sắc tư phong: Cái kia kém thì cái này hơn, nghĩa là: Được hơn điều này thì bị kém điều kia.
@@ -142,6 +144,8 @@ Dặm xanh: Dặm cỏ xanh.
 101.  Phong tư: Dáng điệu.
 
 Tài mạo: Tài hoa và dung mạo.
+
+
 
 152. Phong nhã: Phong lưu nho nhã. Hào hoa: Sang trọng phong cách có vẻ quí phái. Vào trong là ở trong nhà, Ra ngoài là ra giao thiệp với đời.
 

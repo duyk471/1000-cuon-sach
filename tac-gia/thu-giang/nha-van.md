@@ -1,0 +1,1 @@
+Ôi má ơi thích cái "Nhà văn chỉ là có điều rất muốn nói, có câu chuyện rất muốn kể mà thôi"
