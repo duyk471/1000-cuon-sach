@@ -1,0 +1,3 @@
+# Tâm lý học về tiền
+
+Mới đọc một lần, nói chung là cảm giác khá ấn tượng :> chả biết nói gì khác về 20 nguyên tắc đó...
